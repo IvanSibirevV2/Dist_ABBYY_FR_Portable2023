@@ -1,0 +1,1 @@
+# Dist_ABBYY_FR_Portable2023
